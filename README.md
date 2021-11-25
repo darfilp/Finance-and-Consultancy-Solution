@@ -1,1 +1,0 @@
-# Finance-and-Consultancy-Solution
